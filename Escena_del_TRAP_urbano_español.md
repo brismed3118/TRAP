@@ -30,3 +30,5 @@ Aunque muchos de los artistas que surgieron en la escena underground han logrado
 Las redes sociales han sido clave para el crecimiento del trap underground en España. Plataformas como Instagram, TikTok y YouTube han permitido a los artistas conectar directamente con su audiencia, saltándose las barreras tradicionales de la industria musical. Este acceso directo ha permitido a muchos artistas obtener seguidores leales, aunque sigan estando fuera del radar de los medios de comunicación masivos.
 
 En resumen, el trap underground en España ha pasado de ser un movimiento marginal a tener una gran influencia dentro de la música urbana y la cultura popular del país. Aunque muchos artistas han pasado al mainstream, la escena underground sigue siendo un espacio dinámico y en constante evolución, con nuevos nombres emergiendo continuamente.
+
+Un documental hecho en 2024 sobre Yung Beef https://youtu.be/lhttiDIzH88?si=xCCrD57fafulYh9R
