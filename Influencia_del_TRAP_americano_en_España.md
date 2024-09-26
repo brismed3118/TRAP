@@ -1,6 +1,8 @@
 El **trap americano**, con figuras clave como **Chief Keef** y **Gucci Mane**, no solo definió el sonido del trap en Estados Unidos, sino que también moldeó la evolución de la escena trap en España. Ambos artistas fueron pioneros en la creación de una estética y un estilo de vida asociados con el trap, influyendo directamente en cómo los artistas españoles adoptaron y adaptaron estos elementos. Su impacto no fue solo musical, sino también cultural, a través de conceptos como el "Glo" que impregnaron las letras, la actitud y el estilo de vida de los traperos en ambos lados del Atlántico.
 
 ### Chief Keef: Drill, Trap y "Glo"
+![gettyimages-147139801-612x612](https://github.com/user-attachments/assets/34250f5d-fc70-4079-951d-c5ca3a57b74f)
+
 Chief Keef, originario de Chicago, es una figura clave tanto en el **drill** como en el trap. En 2012, su álbum debut *Finally Rich* y sencillos como "I Don't Like" y "Love Sosa" definieron el sonido del drill, un subgénero del trap que enfatiza beats oscuros, bajos agresivos y letras que hablan de la violencia callejera y las experiencias en los barrios más duros de Chicago. Chief Keef no solo popularizó este sonido, sino que también creó una cultura en torno a su música, conocida como **Glo**.
 
 #### ¿Qué es "Glo"? 
@@ -9,6 +11,8 @@ Chief Keef, originario de Chicago, es una figura clave tanto en el **drill** com
 - **Influencia en el trap español**: El sonido crudo y oscuro del drill y la actitud "Glo" de Chief Keef resonaron en la escena trap española, particularmente en artistas como **Yung Beef** y **Los Santos** (antes **PXXR GVNG**), que adoptaron ese enfoque crudo, realista y desafiando las normas. El minimalismo agresivo y la producción centrada en bajos profundos también se trasladaron a los beats del trap español.
 
 ### Gucci Mane: El arquitecto del trap
+![gettyimages-1427428322-612x612](https://github.com/user-attachments/assets/ef496d29-b958-4705-b207-fb1375a76a54)
+
 Gucci Mane es una figura legendaria dentro del trap y considerado uno de los fundadores del género tal como lo conocemos hoy. Surgido de Atlanta, Gucci Mane, junto a artistas como **Young Jeezy** y **T.I.**, ayudó a darle forma al trap en su etapa inicial, a principios de los 2000, antes de que explotara globalmente en la década de 2010. Su álbum *Trap House* (2005) y otros trabajos como *The State vs. Radric Davis* (2009) fueron fundamentales para definir el sonido del trap con beats densos, atmósferas sombrías y letras centradas en el narcotráfico y la vida en las calles.
 
 #### Influencia de Gucci Mane en el trap español:
