@@ -1,5 +1,7 @@
 La escena del trap underground en España ha crecido significativamente en la última década, consolidándose como un fenómeno dentro de la cultura juvenil y alternativa. Desde su aparición, el trap ha sido un género que mezcla ritmos de hip-hop, con beats oscuros y letras que suelen girar en torno a temas como la vida en los barrios, el dinero, las drogas y las dificultades de la calle. En el contexto español, el trap underground tiene características propias que lo distinguen de otras escenas internacionales.
 
+![fuimos-con-los-pxxr-gvng-a-la-fashion-week-de-madrid-498-1424089761-700x473](https://github.com/user-attachments/assets/09727964-b77e-4e04-b6c2-bed60b862428)
+
 ### Características del trap underground en España:
 1. **Temática y estilo lírico**: Aunque comparte con el trap internacional las referencias a la calle, la violencia y el exceso, el trap español añade elementos más locales. Las letras suelen tener referencias a la vida en los barrios marginales españoles, el desempleo, la inmigración y los problemas sociales del país. También, algunos artistas incorporan el uso del lenguaje callejero y jerga específica de España, a veces mezclando el castellano con palabras de lenguas regionales como el catalán o el gallego.
 
